@@ -1,0 +1,1 @@
+This is my personal portfolio including my developed applications/projects and to know more about me social websites.
